@@ -18,4 +18,3 @@ Here are some ideas to get you started:
 
 Perkenalkan nama saya **Irfan Arrahman**.\
 
-Saya adalah fans MUnyuk sejati. Salam kenal!
